@@ -1,0 +1,3 @@
+# financas
+
+![img](https://img-a.udemycdn.com/redactor/raw/2020-05-07_21-39-24-62efcd96cb372bb2a4cec0458013e5e3.png?SnTbAocvbhqsXumxyPASEzXg8IjtSebxHIVhhB5ifdc8wBoMLe22gF2eiQ3mubi-EayYfy9FtEznfxilf_ixNq5FWoQR2lhCZ0N-ebpXnlAIi1OreAFNsrxpEo9JCDOHBFZxPE1FnkYSktG4gDV43WwPo7SVKuiJAqhWfgcYLEkQk0it)
